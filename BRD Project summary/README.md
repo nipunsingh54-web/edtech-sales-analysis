@@ -1,1 +1,0 @@
-# BRD Project Summary
